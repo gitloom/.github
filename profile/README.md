@@ -5,7 +5,7 @@
 ## Join Early Access!
 
 Go to [https://gitloom.ai](gitloom.ai) and sign up. Become one of our earliest users!
-First 3 reports are free, and no credit card is asked upfront.
+First 2 reports are free, and no credit card is asked upfront.
 
 ## About
 
